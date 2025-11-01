@@ -9,11 +9,11 @@
 
 ### 🌍 Skúsenosti a aktivity
 
-- 🎓 **Študentský parlament** – bývalá aktívna členka, organizovanie študentských podujatí, komunikácia medzi študentmi a vedením školy  
-- 🌱 **Akadémia udržateľnosti** – absolvovaný program zameraný na klimatické riešenia, environmentálne myslenie a udržateľný dizajn  
-- 🇳🇱 **Erasmus+ „How to Take Care of Our Nature“ (Holandsko)**  
+🎓 **Študentský parlament** – bývalá aktívna členka, organizovanie študentských podujatí, komunikácia medzi študentmi a vedením školy  
+🌱 **Akadémia udržateľnosti** – absolvovaný program zameraný na klimatické riešenia, environmentálne myslenie a udržateľný dizajn  
+🇳🇱 **Erasmus+ „How to Take Care of Our Nature“ (Holandsko)**  
   – medzinárodný projekt o ochrane prírody, ekologickom myslení a komunitnej spolupráci  
-- 🤝 Skúsenosti s **community managementom** – práca s publikom, spätnou väzbou, ankety, správa obsahu na Ko-fi
+🤝 Skúsenosti s **community managementom** – práca s publikom, spätnou väzbou, ankety, správa obsahu na Ko-fi
 
 🧠 **Zručnosti / Skills**
 - Canva, Figma – grafika, prezentácie

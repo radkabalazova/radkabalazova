@@ -33,7 +33,7 @@
 
 ### 💌 Kontakt / spolupráca
 
-- 💼 GitHub: `github.com/lollynka`  
+- 💼 GitHub: `github.com/radkabalazova`  
 - 📧 E-mail: *radka279@gmail.com*  
 - 🌸 Som otvorená spoluprácam, kreatívnym projektom a nápadom
 

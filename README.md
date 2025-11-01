@@ -9,7 +9,7 @@
 
 ### 🌍 Skúsenosti a aktivity
 
-- 🎓 **Študentský parlament** – aktívna členka, organizovanie študentských podujatí, komunikácia medzi študentmi a vedením školy  
+- 🎓 **Študentský parlament** – bývalá aktívna členka, organizovanie študentských podujatí, komunikácia medzi študentmi a vedením školy  
 - 🌱 **Akadémia udržateľnosti** – absolvovaný program zameraný na klimatické riešenia, environmentálne myslenie a udržateľný dizajn  
 - 🇳🇱 **Erasmus+ „How to Take Care of Our Nature“ (Holandsko)**  
   – medzinárodný projekt o ochrane prírody, ekologickom myslení a komunitnej spolupráci  
